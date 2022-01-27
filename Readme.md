@@ -1,1 +1,1 @@
-dile nadan tujhe hua kya hai 
+dile nadan tujhe hua kya hai .New  
